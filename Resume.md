@@ -70,8 +70,12 @@ Computer Science
 ## Personal Hobbies
 
 -Disc Golf
+
 -Golf
+
 -Cars
+
 -Outdoors
+
 -Family
     
